@@ -1,3 +1,11 @@
 aaaaaaaaaaaaaaaaaaa
-aaaaaaa
-aaaasagçksjahdv´po sjwm´f0wajugpfowjief´çq
+aaaaaas
+d
+sd
+gs
+g
+sdg
+s
+g
+sg
+s
